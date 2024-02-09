@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **anything**
 
-- ⚡ Fun fact **I am a programmer also.**
+- ⚡ Fun fact **I am a hacker.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
